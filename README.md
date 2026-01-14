@@ -1,0 +1,1 @@
+Hello, this assignment is weird and we learned most of this but I forgot it so I'm very confused right now. I would like to get a drink or eat something. I love food. I want to read and not do psychology because pysch notes are weird and I don't like them. It is a college class, too many of my classes are college classes.
